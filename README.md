@@ -21,7 +21,7 @@ Titulaire d’un **Bachelor en Génie Logiciel et Systèmes d’Information** à
 
 ## 📫 Me contacter
 - Email: mouhamed.sakho@heig-vd.ch
-- LinkedIn: https://www.linkedin.com/in/mouhamed-sakho-6b3648249/
+- LinkedIn: [Mouhamed SAKHO](https://www.linkedin.com/in/mouhamed-sakho-6b3648249/)
 
 <sub>Dernière mise à jour : 2025-09-17</sub>
 
